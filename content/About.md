@@ -47,7 +47,7 @@ Xiaobai Delete Post Company is your best choice for online crisis management. We
 Xiaobai Delete Post Company: A Chinese Online PR Expert.
 
 ---
-## 联系方式
+## 联系方式 Contact
 Telegram:[@xiaobaifumian](https://t.me/xiaobaifumian)
 
 Website:[shantie.store](https://shantie.store)
