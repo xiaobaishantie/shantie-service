@@ -35,6 +35,10 @@ Telegram:https://t.me/xiaobaifumian
 
 Website:https://shantie.store
 
+Youtube:https://www.youtube.com/channel/UCIFchGo-wN27XdZV4i_6uCA
+
+Twitter:
+
 Xiaobai Delete Post Company, make your online image spotless. Contact us for more details. Xiaobai Delete Post Company, looking forward to working with you!
 
 ## Examples
