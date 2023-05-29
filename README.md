@@ -16,8 +16,9 @@ Website:https://shantie.store
 
 晓白删帖公司，是您网络危机处理的最佳选择。我们以诚信为本，以效果为王，以客户为中心，为您提供优质高效的网络公关服务。无论您是个人还是企业，无论您遇到什么样的网络问题，只要您联系我们，我们就会竭尽全力为您解决。
 
-晓白删帖公司，让您的网络形象一尘不染。请拨打我们的咨询热线：400-888-8888，或者扫描下方二维码关注我们的微信公众号，了解更多详情。晓白删帖公司，期待与您合作！
+晓白删帖公司，让您的网络形象一尘不染。请添加我们的telegram，了解更多详情。晓白删帖公司，期待与您合作！
 
+---
 ## English
 Xiaobai Delete Post Company, make your online image spotless
 In the Internet age, online public opinion has an increasing impact on individuals and enterprises. Some false or negative posts may bring you endless trouble and loss. How to effectively remove these online stains and protect your reputation and rights?
@@ -28,4 +29,39 @@ Our service process is simple and convenient, you only need to provide the links
 
 Xiaobai Delete Post Company is your best choice for online crisis management. We are based on integrity, result-oriented, customer-centered, providing you with high-quality and efficient online public relations services. Whether you are an individual or an enterprise, no matter what kind of online problem you encounter, as long as you contact us, we will do our best to solve it for you.
 
-Xiaobai Delete Post Company, make your online image spotless. Please call our consultation hotline: 400-888-8888, or scan the QR code below to follow our WeChat public account for more details. Xiaobai Delete Post Company, looking forward to working with you!
+
+## 联系方式
+Telegram:https://t.me/xiaobaifumian
+
+Website:https://shantie.store
+
+Xiaobai Delete Post Company, make your online image spotless. Contact us for more details. Xiaobai Delete Post Company, looking forward to working with you!
+
+## Examples
+
+### 知乎删帖公司
+![知乎删帖公司](https://github.com/xiaobaishantie/shantie-service/assets/134913089/6d019f45-364f-4281-aea1-f38f25163580)
+### 知乎删帖服务
+![知乎删帖服务](https://github.com/xiaobaishantie/shantie-service/assets/134913089/ef0639cc-0dee-42bd-b305-353248511ada)
+### 东方财富股吧删帖服务
+![东方财富股吧删帖服务](https://github.com/xiaobaishantie/shantie-service/assets/134913089/306aa3a3-827c-4d22-8310-a8544a5ecea5)
+### 百家号搜狐网易负面处理公司
+![百家号搜狐网易负面处理公司](https://github.com/xiaobaishantie/shantie-service/assets/134913089/f03288d1-8c95-4e27-8f21-65a5c6a87d78)
+### 微博负面删除服务
+![微博负面删除服务](https://github.com/xiaobaishantie/shantie-service/assets/134913089/5b544eb0-7c97-4441-98c9-5227aacdc826)
+### 知乎负面处理服务
+![知乎负面处理服务](https://github.com/xiaobaishantie/shantie-service/assets/134913089/2e9f3294-2ff3-4800-9389-6c66c622a835)
+### 股转负面删除服务
+![股转负面删除服务](https://github.com/xiaobaishantie/shantie-service/assets/134913089/2a6981cf-db2d-413a-9bca-06eeeb763b37)
+### 股票盘负面删除公司
+![股票盘负面删除公司](https://github.com/xiaobaishantie/shantie-service/assets/134913089/c71c29c3-c43b-41a4-b01d-afcd60ec06c6)
+### 百度贴吧负面删帖公司
+![百度贴吧负面删帖公司](https://github.com/xiaobaishantie/shantie-service/assets/134913089/21039b40-9545-412c-9a2f-ef5d94afa704)
+### 网易新闻负面处理服务
+![网易新闻负面处理服务](https://github.com/xiaobaishantie/shantie-service/assets/134913089/9940caa9-23a9-4de5-bd27-5697a3068920)
+### 股转盘负面清理
+![股转盘负面清理](https://github.com/xiaobaishantie/shantie-service/assets/134913089/824bb4dc-b396-439e-8135-a0ccd2521cc4)
+### 知乎清理
+![知乎清理](https://github.com/xiaobaishantie/shantie-service/assets/134913089/d61d6d73-5e0e-49fc-816f-3ebf444ad45a)
+
+
