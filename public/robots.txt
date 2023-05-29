@@ -1,0 +1,2 @@
+User-agent: *
+Sitemap: https://shantie.store/sitemap.xml
