@@ -1,3 +1,4 @@
+![晓白删帖公司头像](https://github.com/xiaobaishantie/shantie-service/assets/134913089/6295657b-3bff-48be-aeef-d3f618b347c0)
 # 晓白删帖公司，提供国内所有网络媒体，社交平台删帖服务！Xiaobai Delete Post Company is a professional company that provides deletion services for Chinese online media and social platforms.
 晓白删帖公司，提供国内所有网络媒体，社交平台删帖服务！Xiaobai Delete Post Company providing Remove negative and defamatory information from Chinese news and social media.
 
@@ -5,6 +6,10 @@
 Telegram:https://t.me/xiaobaifumian
 
 Website:https://shantie.store
+
+Youtube:https://www.youtube.com/channel/UCIFchGo-wN27XdZV4i_6uCA
+
+Twitter:
 
 ## 晓白删帖公司，让您的网络形象一尘不染
 
@@ -34,6 +39,10 @@ Xiaobai Delete Post Company is your best choice for online crisis management. We
 Telegram:https://t.me/xiaobaifumian
 
 Website:https://shantie.store
+
+Youtube:https://www.youtube.com/channel/UCIFchGo-wN27XdZV4i_6uCA
+
+Twitter:
 
 Xiaobai Delete Post Company, make your online image spotless. Contact us for more details. Xiaobai Delete Post Company, looking forward to working with you!
 
