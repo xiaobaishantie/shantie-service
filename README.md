@@ -6,7 +6,7 @@ Telegram:https://t.me/xiaobaifumian
 
 Website:https://shantie.store
 
-Youtube:
+Youtube:https://www.youtube.com/channel/UCIFchGo-wN27XdZV4i_6uCA
 
 Twitter:
 
