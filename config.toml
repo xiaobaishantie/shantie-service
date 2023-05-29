@@ -80,7 +80,7 @@ defaultContentLanguage = "en"           # Default language to use
   customJS = []             # if ['custom.js'], load '/static/js/custom.js' file
 
   [params.social]                                         # 社交链接
-    a-email = "mailto:contzwjl@gmail.com"
+    a-email = "mailto:xiaobai@shantie.store"
     c-twitter = "https://twitter.com/delete_cn"
     g-github = "https://github.com/xiaobaishantie/shantie-service"
     t-youtube = "https://www.youtube.com/channel/UCIFchGo-wN27XdZV4i_6uCA"

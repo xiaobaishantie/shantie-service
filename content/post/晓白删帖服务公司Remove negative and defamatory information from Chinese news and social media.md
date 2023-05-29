@@ -61,9 +61,18 @@ Xiaobai Delete Post Company is your best choice for online crisis management. We
 
 
 ## 联系方式
-Telegram:https://t.me/xiaobaifumian
 
-Website:https://shantie.store
+Telegram:[@xiaobaifumian](https://t.me/xiaobaifumian)
+
+Website:[shantie.store](https://shantie.store)
+
+Youtube:[晓白删帖公司-专业负面处理](https://www.youtube.com/channel/UCIFchGo-wN27XdZV4i_6uCA)
+
+Twitter:[@delete_cn](https://twitter.com/delete_cn)
+
+Github:[xiaobaishantie](https://github.com/xiaobaishantie/shantie-service)
+
+Email:[Email](mailto:xiaobai@shantie.store)
 
 Xiaobai Delete Post Company, make your online image spotless. Contact us for more details. Xiaobai Delete Post Company, looking forward to working with you!
 
