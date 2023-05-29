@@ -72,7 +72,7 @@ Twitter:[@delete_cn](https://twitter.com/delete_cn)
 
 Github:[xiaobaishantie](https://github.com/xiaobaishantie/shantie-service)
 
-Email:[Email](mailto:xiaobai@shantie.store)
+Email:[xiaobai@shantie.store](mailto:xiaobai@shantie.store)
 
 Xiaobai Delete Post Company, make your online image spotless. Contact us for more details. Xiaobai Delete Post Company, looking forward to working with you!
 
