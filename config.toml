@@ -2,7 +2,7 @@
 # If you want to see the full configuration, please check `full-config.toml` .
 # And see https://gohugo.io/getting-started/configuration/ .
 
-baseURL = "http://localhost:1313/"
+baseURL = "https://shantie.store"
 title = "晓白删帖公司-提供国内网站删帖封号,百度清除竞争对手排名."
 enableRobotsTXT = true
 enableEmoji = true
