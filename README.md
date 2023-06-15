@@ -9,7 +9,7 @@ Website:https://shantie.store
 
 Youtube:https://www.youtube.com/channel/UCIFchGo-wN27XdZV4i_6uCA
 
-Twitter:
+Twitter:https://twitter.com/delete_cn
 
 ## 晓白删帖公司，让您的网络形象一尘不染
 
